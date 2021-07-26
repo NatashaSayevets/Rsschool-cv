@@ -1,1 +1,0 @@
-https://github.com/NatashaSayevets/Rsschool-cv/cv
